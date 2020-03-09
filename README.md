@@ -26,6 +26,7 @@ Whenever there is a speacial occasion I have my mom make these big cookies that 
 1. Preheat the oven to 350 degrees. In a large bowl, mix the brown sugar, white sugar, shortening, eggs, and vanilla with electric mixers on low speed until well mixed.
 2. Add the 2 1/2 cups flour, baking soda, and salt. Mix until just combined; I found it easiest to finish this by hand. Add the extra tablespoons of flour until the dough feels thick and almost dry to the touch. Stir the M&M’s into the dough.
 3. Roll into large balls (unless you want small cookies, and who are you anyways?) and press extra M&M’s into the tops. Flatten slightly with your palm or the back of a wooden spoon. Bake for 8-10 minutes (they will be slightly underbaked). Remove from cookie sheet right away and place on cooling rack. Let stand for 5-10 minutes to help the cookies hold their shape.
+1. Enjoy your warm, soft cookies!
 
 # Notes
 
